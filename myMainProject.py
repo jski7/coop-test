@@ -1,0 +1,1 @@
+Nie umiem programowac XD
